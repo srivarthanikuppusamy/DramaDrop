@@ -72,4 +72,4 @@ https://dramadrop.zapier.app
 
 ## 👤 Author
 
-Created by Beauty
+Created by Srivarthani.K
